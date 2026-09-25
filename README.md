@@ -29,3 +29,9 @@ pansmp : behind by 1 episode <br>
 sbk : caught up on musithical, behind 1 episode on legundo, behind 1 episode on doovid, spoilers for other povs ok <br>
 
 no worries if you've spoiled something for me without knowing i haven't seen it, part of socializing in ponytown is talking about these things lol, i wouldn't hold it against anyone
+
+<h2>`````special cases</h2>
+<p>if using Clara pony:</p>
+<p>c+h : always unless stated <br>
+int: with caution unless close friend <br>
+</p>
