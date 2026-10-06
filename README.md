@@ -25,8 +25,8 @@ follow socials : always <br>
 
 <h2>`````spoiler tracker</h2>
 vsmp : fully caught up <br>
-pansmp : behind by 1 episode <br>
-sbk : caught up on musithical, behind 1 episode on legundo, behind 1 episode on doovid, spoilers for other povs ok <br>
+pansmp : fully caught up <br>
+sbk : caught up on musithical, behind on legundo, behind on doovid, spoilers for other povs ok <br>
 
 no worries if you've spoiled something for me without knowing i haven't seen it, part of socializing in ponytown is talking about these things lol, i wouldn't hold it against anyone
 
